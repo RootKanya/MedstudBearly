@@ -1,6 +1,4 @@
 ## happy folks :3 👋 👋 👋
-Haii im Berlian Yafi aka Bearly 💎 💎
- A freshman software enggineering student 💻 🖲️
- Currently learning how to make program and simple project 😔
- Im chronicly online and loved to learned new things and meeting new friend, so feel free to hit me up 🤝🤝
-insta:@bearly08kmaway
+Haii im just a random freshman software engineering student who is experimenting with things 
+I'm chronically online and love to learn new things and meet new friends, so feel free to hit me up 🤝🤝
+
